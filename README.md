@@ -1,2 +1,0 @@
-# IPL
-IPL ANALYSIS
